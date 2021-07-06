@@ -1,2 +1,2 @@
-well this is an effort to get the Developer Badge
-yea i exploit stuff
+We are Spearfall Games
+this is a very bad website cause we just started off
